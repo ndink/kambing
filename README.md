@@ -1,2 +1,2 @@
-# kambing
+# midasmind
 mantap jiwa
